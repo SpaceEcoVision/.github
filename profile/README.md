@@ -10,4 +10,4 @@
 
 An independent research initiative.
 
-[spaceecovision.org](https://spaceecovision.org) · [@spaceEcoVision](https://x.com/spaceEcoVision) · connect@spaceecovision.org
+[www.bhims.com.np](https://www.bhims.com.np) · [@spaceEcoVision](https://x.com/spaceEcoVision) · connect@bhims.com.np
